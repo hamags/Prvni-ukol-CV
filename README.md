@@ -1,2 +1,2 @@
-# Prvn-kol-CV
+# Prvni-ukol-CV
 Životopis
